@@ -3,5 +3,4 @@
 - 🌱 Universiotario, Ciências da Computação
 - 💬 Futuro Dev
 - 📫 Tô no Instagram: @GusBaka
-- ⚡ Otakinho, Gamer e cabeludinho: ...
--->
+
